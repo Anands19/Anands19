@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: [Linkedin](https://www.linkedin.com/in/anand-s-57353521b/)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a diehard potterhead
--->
